@@ -1,1 +1,0 @@
-# kontaktu_saraksts
